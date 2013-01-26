@@ -1,4 +1,4 @@
-jcse
+Jesus Collaborative Story Experience
 ====
 
-Jesus Collaborative Story Experience
+
