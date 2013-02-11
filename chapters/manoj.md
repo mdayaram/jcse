@@ -27,15 +27,15 @@ Manoj's Chapter
 
 [put on a hat, or fake moustache, or anything to pretend to be someone else while making flashback noises.  If possible, have different costumes for heather and John]
 
-> **John:** "Hey! You!"
-> **Heather:** "I WANT TO HAVE YOUR CHILDREN! TAKE ME SANDERS! I LOVE YOU LILY!"
-> **John:** "HEY!"
-> **Heather:** "Hey! Weren't they amazing!  I just love Sanders and Lily sooo much!  They're just so talented, and beautiful, and sexy, and, and, and, and" [simulate midst orgasm]
-> **John:** "You seem to like the show very much, don't you?"
-> **Heather:** "Oh yes! don't you?!?!"
-> **John:** "That's irrelevant!  Now tell me, how would you get more people to see this show!"
-> **Heather:** "Oh! Oh! I already come to all the shows, but I guess I would come even MORE if you guys held MORE shows!"
-> **John:** "Interesting, interesting..."
+> **John:** "Hey! You!"  
+> **Heather:** "I WANT TO HAVE YOUR CHILDREN! TAKE ME SANDERS! I LOVE YOU LILY!"  
+> **John:** "HEY!"  
+> **Heather:** "Hey! Weren't they amazing!  I just love Sanders and Lily sooo much!  They're just so talented, and beautiful, and sexy, and, and, and, and" [simulate midst orgasm]  
+> **John:** "You seem to like the show very much, don't you?"  
+> **Heather:** "Oh yes! don't you?!?!"  
+> **John:** "That's irrelevant!  Now tell me, how would you get more people to see this show!"  
+> **Heather:** "Oh! Oh! I already come to all the shows, but I guess I would come even MORE if you guys held MORE shows!"  
+> **John:** "Interesting, interesting..."  
 
 [take off costumes, resume normal storytelling]
 
