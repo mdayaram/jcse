@@ -17,14 +17,14 @@ Sanders and Lily are performers in some sort of artistic endeavor (film, interpr
 
 ## Characters
 
-**John Johnson Jr** - *Executive* – Rumbling and sandy with sharp eyes and droop face. The middle aged upper management who seems to be nothing more than an embodiment of his job. Passive aggressive churlish obsequious eloquence.
+**John Johnson Jr** - *Executive* - Rumbling and sandy with sharp eyes and droop face. The middle aged upper management who seems to be nothing more than an embodiment of his job. Passive aggressive churlish obsequious eloquence.
 
-**Sanders Milfort** - *Performer* – Avant garde and fluid. A tumbling glue wheel in mind splash tee shirts. Filterless and with long hair, he performs well, though unusually. Sanders has a piercing in an strange place and pale skin.
+**Sanders Milfort** - *Performer* - Avant garde and fluid. A tumbling glue wheel in mind splash tee shirts. Filterless and with long hair, he performs well, though unusually. Sanders has a piercing in an strange place and pale skin.
 
-**Heather Tress** – *Fan* – A loud, pushy chatterbox. Attractive and willing to use it for personal gain, she endlessly seeks autographs or memorabilia. Often a manic pixie dream child, but in a way that can seem forced/fake, which belies a sharp mind.
+**Heather Tress** - *Fan* - A loud, pushy chatterbox. Attractive and willing to use it for personal gain, she endlessly seeks autographs or memorabilia. Often a manic pixie dream child, but in a way that can seem forced/fake, which belies a sharp mind.
 
-**Lily Summers** – *Performer* - Suffering no fools, the tall and disciplined girl knows what she wants and goes straight for it. Her business/pleasure line is never blurred, though she indulges both with great enthusiasm. Heavily freckled.
+**Lily Summers** - *Performer* - Suffering no fools, the tall and disciplined girl knows what she wants and goes straight for it. Her business/pleasure line is never blurred, though she indulges both with great enthusiasm. Heavily freckled.
 
-**Hort** – *Director* – An immigrant with a heavy accent. He's eager to implement his own ideas, which can clash with those of his coworkers, but turn out well most of the time except when they don't.
+**Hort** - *Director* - An immigrant with a heavy accent. He's eager to implement his own ideas, which can clash with those of his coworkers, but turn out well most of the time except when they don't.
 
 **Other** - Add any other characters you want.
